@@ -1,9 +1,9 @@
-![music celebration flyer](Final Music Celebration Flyer.jpg)
+![music%20celebration%20flyer](Final%20Music%20Celebration%20Flyer.jpg)
 
-![yaya flyer](Sanday 2nd Design by yaya .png)
+![yaya%20flyer](Sanday%202nd%20Design%20by%20yaya%20.png)
 
-![1rst design flyer](Sandy 1st design by yaya.png)
+![1rst%20design%20flyer](Sandy%201st%20design%20by%20yaya.png)
 
-![untold stories flyer](Untold Stories Flyer [1].jpg)
+![untold%20stories%20flyer](Untold%20Stories%20Flyer%20[1].jpg)
 
-![save the date](save the date  copy.jpg)
+![save%20the%20date](save%20the%20date%20%20copy.jpg)
